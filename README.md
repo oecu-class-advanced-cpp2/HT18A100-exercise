@@ -1,1 +1,1 @@
-omuraise
+yakiniku
